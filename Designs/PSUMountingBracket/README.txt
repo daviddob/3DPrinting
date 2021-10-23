@@ -1,0 +1,1 @@
+Snappy Mounting Bracket (customizable *.f3d) by bequdrei on Thingiverse: https://www.thingiverse.com/thing:4977737
